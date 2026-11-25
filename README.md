@@ -115,3 +115,14 @@ Kreative Solutions LinkedIn:
 https://www.linkedin.com/in/kreative-solutions-581733339/
 
 People | Technology | Real Solutions
+
+Professional Links
+
+Corporate Website:
+https://www.kreativesolutions.media/
+
+Personal UX and Technology Portfolio:
+https://joshj0529.wixsite.com/joshua-jones-ux
+
+LinkedIn:
+https://www.linkedin.com/in/joshua-j-841884170/
